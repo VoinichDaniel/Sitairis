@@ -1,2 +1,1 @@
-# Sitairis
-Lukashevich Timophey
+ya nikolya obychniy malchik
